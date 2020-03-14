@@ -1,4 +1,4 @@
-https://tatiana-mnk.github.io/sophopage
+https://tatiana-mnk.github.io/sophopage/index.html
 
 
 Shopho — бесплатный PSD шаблон, PSD версию можно загрузить по ссылке: http://psd-html-css.ru/templates/besplatnyy-psd-shablon-lendingovoy-stranicy-agenstva
